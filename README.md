@@ -9,19 +9,19 @@ Video sharing (Youtube, facebook live, periscope, vimeo)
 Hazard of using dangerous social media app
 When we say dangerous or unsafe social media apps, we don’t mean that the app itself is dangerous NO; I mean that abuse of these apps by people with hidden, fatal motives. Moreover, while the wrongdoer who abuses the app to harass a person is to be blamed and punished for all the right reasons as parents, it is our responsibility to teach the kids not to give anyone the opportunity to harass them.
 Dangerous social media app
-1) Snapchat
-2) Ask.fm
-3) Tik tok
-4) Whisper
-5) Kik messenger
-6) Tinder
-7) Instagram
-8) Omegle
-9) Blendr
-10) Periscope
-11) House party
-12) We chat
-13) Bigo live
+1) Snapchat</br>
+2) Ask.fm</br>
+3) Tik tok</br>
+4) Whisper</br>
+5) Kik messenger</br>
+6) Tinder</br>
+7) Instagram</br>
+8) Omegle</br>
+9) Blendr</br>
+10) Periscope</br>
+11) House party</br>
+12) We chat</br>
+13) Bigo live</br>
 
 Online risk for teens and children
 Social media is a part of everyday life for most teenagers. Researchers show that teens inclined to favor popular sites like Facebook, Twitter and instagram. As technology is resolving earlier, there is a growing need child friendly social network. Start by considering the different type of hazards tens and kids face:
@@ -54,6 +54,5 @@ https://www.linkedin.com/in/mamosuggests
 https://twitter.com/mamosuggests
 https://instagram.com/mamosuggests    
 https://mamosuggests32.medium.com/
-join my facebook group 
 https://www.facebook.com/groups/mamosuggests
 </p>
