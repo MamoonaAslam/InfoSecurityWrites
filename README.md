@@ -48,11 +48,11 @@ As the technology is growing the social media has become the routine for each an
 <p>
 🔗LINKS ARE MENTIONED BELOW 👇
 You can find me on social media:
-https://mamosuggests.blogspot.com
-https://github.com/mamosuggests
-https://www.linkedin.com/in/mamosuggests
-https://twitter.com/mamosuggests
-https://instagram.com/mamosuggests    
-https://mamosuggests32.medium.com/
-https://www.facebook.com/groups/mamosuggests
+https://mamosuggests.blogspot.com</br>
+https://github.com/mamosuggests</br>
+https://www.linkedin.com/in/mamosuggests</br>
+https://twitter.com/mamosuggests</br>
+https://instagram.com/mamosuggests</br>  
+https://mamosuggests32.medium.com/</br>
+https://www.facebook.com/groups/mamosuggests</br>
 </p>
